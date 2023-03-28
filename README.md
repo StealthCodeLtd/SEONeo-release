@@ -1,1 +1,1 @@
-SEO Autopilot Releases repository
+SEO Neo Releases repository
